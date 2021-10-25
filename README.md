@@ -8,10 +8,10 @@
 
 ┊༻࿐ 🦋 Country: Germany
 
-┊༻࿐ 🦋 Plurality: demi-plural tulpamancer
+┊༻࿐ 🦋 Discord: serei#3983
 
 ┊༻࿐ 🦋 Colour: sunflower yellow
 
-┊༻࿐ 🦋 Languages: english, german, russian
+┊༻࿐ 🦋 Carrd: https://serei.carrd.co
 
 ╰┄┄┄┄┄┄┄ ༊*·˚
